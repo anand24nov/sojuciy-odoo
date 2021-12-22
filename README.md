@@ -1,0 +1,1 @@
+# sojuciy-odoo
